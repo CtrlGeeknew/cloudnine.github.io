@@ -10,7 +10,7 @@ Flying Saucers and other UFOs
 Time Travel
 
 
-..... And many more
+And many more
 
 
 
